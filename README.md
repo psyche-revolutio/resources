@@ -1,1 +1,5 @@
-# resources
+——— ⋆✶⋆ ———
+Psyche's Resources
+———
+
+Welcome!
